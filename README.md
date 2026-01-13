@@ -129,7 +129,7 @@ Yes, we support local companies searching for **shipping tapes for business tust
 
 ## Order Shipping Tapes in Tustin – Request a Quote Today
 
-If you’re ready to [**order shipping tapes tustin**](https://www.bluerosepackaging.com/product-category/custom-products/shipping-tapes/) for daily operations or long-term supply, Bluerose Packaging is here to help. From wholesale carton sealing tapes to custom branded solutions, we deliver products built for performance, efficiency, and cost control.
+If you’re ready to [**order shipping tapes tustin**](https://www.bluerosepackaging.com/location/tustin/buy-shipping-tapes-near-me-in-tustin/) for daily operations or long-term supply, Bluerose Packaging is here to help. From wholesale carton sealing tapes to custom branded solutions, we deliver products built for performance, efficiency, and cost control.
 
 **Request a quote today** and secure a dependable packaging supply partner for your business.
 
